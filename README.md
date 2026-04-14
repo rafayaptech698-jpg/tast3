@@ -1,2 +1,2 @@
 # tast3
-random text
+7 Must-Have Items for a Beach Vacation | Palmera Inn And SuitesA beach is a dynamic landform along the coast of a body of water, formed by waves and currents depositing sand, pebbles, or sediments. Common types include sandy, rocky, and tropical shores. These areas serve as popular, relaxing recreational spots for swimming, sunbathing, surfing, and wildlife viewing, often featuring coastal vegetation and ecosyste
